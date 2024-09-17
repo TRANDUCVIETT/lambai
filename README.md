@@ -1,1 +1,1 @@
-# lambai
+![Hình ảnh kết quả](https://i.imgur.com/BO4unXn.png)
